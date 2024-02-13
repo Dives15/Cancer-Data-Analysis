@@ -1,0 +1,8 @@
+![Screenshot 2024-02-13 153843](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/45230af5-fdad-4ba7-b431-31a86a817a01)
+![Screenshot 2024-02-13 153926](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/e0a54a30-5294-43fb-ab25-51738be3cffc)
+![Screenshot 2024-02-13 153943](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/8fd8bee7-4b3b-4178-8123-606fb75e61ce)
+![Screenshot 2024-02-13 154010](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/cebe4457-3521-4d47-b598-a77a6e97f551)
+![Screenshot 2024-02-13 154021](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/d2d23d5b-0010-4ae4-bfb4-0901ceb61c98)
+![Screenshot 2024-02-13 154056](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/883d7cbf-7756-4b38-af67-eca3963a2b21)
+![Screenshot 2024-02-13 154121](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/a35de90b-1713-44e3-bb74-a00a5cb90ced)
+![Screenshot 2024-02-13 154136](https://github.com/Dives15/Cancer-Data-Analysis/assets/144183016/08e6f117-7723-40cb-88fa-c8e552808eef)
